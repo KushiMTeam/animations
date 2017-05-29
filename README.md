@@ -1,2 +1,2 @@
-# animations
-Free to use FLASH Mini-Animations(Smoke and etc.)
+# Animations
+Free to use. Sale is strictly prohibited!
